@@ -80,8 +80,8 @@ The goal was to uncover key insights about influencer dominance, audience behavi
 ## 📬 Connect with Me
 
 💼 **Created by:** Abhijeet Humane  
-🔗 **LinkedIn:** [Your LinkedIn Profile](https://www.linkedin.com/)  
-📧 **Email:** [Your Email Address]
+🔗 **LinkedIn:** https://www.linkedin.com/in/abhijeet-humane-pb/
+📧 **Email:** [abhijeethumane0611@gmail.com]
 
 ---
 
